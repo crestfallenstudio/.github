@@ -1,5 +1,5 @@
-## Welcome, space traveller
+# Welcome, space traveller
 
-# We are a team of developers who are creating a new project in the Minecraft game.
+## We are a team of developers who are creating a new project in the Minecraft game.
 
-## Our socials:
+### Our socials:
