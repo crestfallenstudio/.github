@@ -7,4 +7,4 @@
 [Facebook](https://facebook.com/groups/enqluence)
 [Instagram](https://instagram.com/enqluencestudios)
 
-![](https://i.gifer.com/UUcK.gif)
+![](https://i.pinimg.com/originals/40/dd/51/40dd5120cb604c846ca373b065aafb55.gif)
