@@ -7,4 +7,4 @@
 [Facebook](https://facebook.com/groups/enqluence)
 [Instagram](https://instagram.com/enqluencestudios)
 
-![](https://cdn.dribbble.com/users/2598999/screenshots/8659774/astronaut.gif)
+![](https://i.gifer.com/UUcK.gif)
