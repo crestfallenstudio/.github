@@ -1,6 +1,6 @@
 # Welcome, space traveller
 
-![](https://i.ibb.co/gRp6QyJ/ezgif-com-gif-maker.gif)
+![](https://bestanimations.com/media/earth/70851112nother-light-earth-view-space.gif)
 
 ## We are a team of developers who are creating a new project in the Minecraft game. We specialize in Java and web development. The project is currently at a very early stage of development. To be the first to see news and spoilers, you can find them on our social media.
 
