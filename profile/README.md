@@ -1,4 +1,4 @@
-![](https://i.ibb.co/PmVSpyG/800.png)
+![](https://i.ibb.co/jwvn8Ph/800-1.png)
 
 ### Our socials:
 [Twitter](https://twitter.com/enqluence)
